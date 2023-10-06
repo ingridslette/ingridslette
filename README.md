@@ -16,4 +16,5 @@
 🌱 My PhD research focused on how previous climate extremes alter the impacts of extreme drought on root traits and patterns of aboveground vs. belowground plant production and carbon cycling in grasslands.
 
 🎓 PhD Colorado State University, Ecology
+
 🎓 BS Hope College, Biology
