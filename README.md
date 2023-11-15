@@ -13,7 +13,7 @@
 
 🌏 My PhD research focused on how previous precipitation extremes alter the impacts of extreme drought on root traits and patterns of aboveground vs. belowground plant production and carbon cycling in grasslands.
 
-📬 email ingrid.slette @ gmail.com
+📬 email ingrid.slette@gmail.com.
 
 🐦 twitter @Ingrid_Slette
 
