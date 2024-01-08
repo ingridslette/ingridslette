@@ -9,9 +9,9 @@
 
 🌎 I synthesize data in order to better understand how environmental changes affects ecosystem functioning.
 
-🌏 My PhD research focused on how previous precipitation extremes alter the impacts of extreme drought on root traits and patterns of aboveground vs. belowground plant production and carbon cycling in grasslands.
+☔️ My PhD research focused on how previous precipitation extremes alter the impacts of extreme drought on root traits and patterns of aboveground vs. belowground plant production and carbon cycling in grasslands.
 
-📬 email slett152@umn.edu
+📬 email slett152@umn.edu.
 
 🐦 twitter @Ingrid_Slette
 
