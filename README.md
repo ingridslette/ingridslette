@@ -5,7 +5,7 @@
 
 😄 pronouns she/her
 
-👩🏼‍💻 I'm a postdoc at the University of Minnesota, and I coordinate NutNet and DRAGNet.
+👩🏼‍💻 I'm a postdoc at the University of Minnesota, and I coordinate NutNet and DRAGNet. I'm also @nutnetadmin.
 
 🌎 My research interests revolve around synthesizing data in order to better understand how various environmental changes affects ecosystem functioning.
 
