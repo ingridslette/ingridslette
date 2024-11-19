@@ -1,9 +1,9 @@
 ## Hi there 👋 I'm Ingrid Slette
 
 
-🔈 Pronounced ing-rid sleh-tuh
+🔈 My name is pronounced ing-rid sleh-tuh
 
-😄 Pronouns she/her
+😄 I use she/her pronouns
 
 👩🏼‍💻 I'm a postdoc at the University of Minnesota, and I coordinate NutNet and DRAGNet. I'm also @nutnetadmin.
 
